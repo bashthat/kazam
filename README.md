@@ -41,4 +41,8 @@ an example of this would be Escoffier, which has a full kitchen development prog
 
 Talent, the intellectual property in how the developmente of the marketing of a product can be carried out practically, using an impractical idea as a philosophy, that works in a new world.
 
-local community vs. global community..
+local community vs. global community.
+========================================
+
+on that note. what is being tailored and developed as a platform for entreprenuers is something that can be budgeted to a highly talented indiviual; target audience is a must, knowing your niche, the community and emotional connection to feel what is being learned or implemented is something that is ideal to the customer who's investing in themselves. Also, action to take trainging into your own hands, own your talent and to implement the blueprint for others to follow. has to be user friendly and easy to follow, and an easy "try this" tutorial of what can be learned with 15 seconds of interaction from the coach teaching someone technique.
+===========================================
