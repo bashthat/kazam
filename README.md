@@ -20,4 +20,25 @@ The marketing of the app is through sponsorship until one applies to actually su
 
 but this can also be interactive marketing.
 
-try a new tutor out, or coach out, learn about their experience, and learn the athletic "positions" you are working on with the coach and have a replay through virtuality to see the pros and cons instantly after applying the new exersize or the new method of technique.
+try a new tutor out, or coach out, learn about their experience, and learn the athletic "positions" you are working on with the coach and have a replay through virtuality to see the pros and cons instantly after applying the new exersize or the new method of technique
+
+
+=========================================
+
+
+The gaming platform offers "features" for advertisement that can be interacted with. I see ARVR	using the same platform as gaming APPS.
+ given there will be sponsorship given the freelancing side of the actual community.
+
+
+the philosophy rests in the fact that there can be a few developers who curate a global family.
+
+TALENT is everything that is being "tailored" for the cause. Talent for the development.
+
+============
+freelancing comes through the "sponsorship" philosophy. Waht i actually mean by the app being an interactive vehicle to market say an instrctor yoga etc.)
+
+an example of this would be Escoffier, which has a full kitchen development program to be a certified baker or chef! start your resturaunt! -- start anything, ARVR, give tours and etc of what is expected and have online training for 10 different locations to start a business in 10 different cities by finding those with the same common interest, who value the companies platform or belief system to carry out the commissioned work to be invested into the company short term or long term. 
+
+Talent, the intellectual property in how the developmente of the marketing of a product can be carried out practically, using an impractical idea as a philosophy, that works in a new world.
+
+local community vs. global community..
