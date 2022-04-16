@@ -52,4 +52,4 @@ The need for ARVR is that its a new approach to the world, a new community of ga
 marketing campaigns.
 using web based ARVR for campaigns to design even a wedding.
 
-
+The other aspect is local businesses, but also franchises that would benefit from using online training as an option "from home" as a web based option for training in a place like McDonalds. where the quiz and the ARVR relates to the approach of training from home to save the time and $$ of both parties.
