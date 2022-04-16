@@ -1,6 +1,6 @@
 this is the project for developing a presentation on inventive ideas in the hackathon at holberton in the community
 =====================
-
+gamers / gamerfication (the taylors)(skillset) / freelance. /
 The overall idea of the project exists in phone apps. modern technology and how people are interacting with each other on a day to day basis. in general we should live in a shared world, break cultural norms or barriers but also that is the sense of realizing that is exactly what evolution is to a generation. its how the (music) video killed the radio star. Or how rock and roll is dead to the digital age bc the audience changed, or the appriciation changed. The world is always changing and there's a need to be part of the technilogical evlolution. 
 
 My best thought rests in ARVR, and the gaming community. But, i personally cannot say that i've been really a big gamer. The last game i was actually good at was between splinter cell and or Halo back when it iwas a big deal to network xbox's in a room with a group of friends and play a full 4 screen 16 player halo game. 
